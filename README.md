@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning cyber security
 - 📫 How to reach me Gmail-anubhav.as777@gmail.com
-                     Insta- anubhavsharmaxx
+                     Insta- @anubhavsharmaxx
 
 <!---
 anubhavsharma007/anubhavsharma007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
